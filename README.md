@@ -25,8 +25,8 @@ I am currently looking for entry-level opportunities in web development.
 
 📫 Connect With Me
 
-- LinkedIn: (Add your LinkedIn link)
-- Email: sd.sourav54@gmail.com
+- Linked🅸🅽: https://www.linkedin.com/in/sourav-das-26753b358/
+- 💌Email: sd.sourav54@gmail.com
 
 ---
 
